@@ -7,7 +7,6 @@
 <p align="center">
 — — — — — — — — — —
 
-<p align="center">
   [rentry for all info ok](https://rentry.co/satorukun)
 
   
