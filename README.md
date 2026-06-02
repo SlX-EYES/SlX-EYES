@@ -8,7 +8,9 @@
 — — — — — — — — — —
 
 <p align="center">
-  links r in wip
+  [rentry for all info ok](https://rentry.co/satorukun)
+
+  
 <!--
 **SlX-EYES/SlX-EYES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
