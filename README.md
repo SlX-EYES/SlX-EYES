@@ -8,6 +8,7 @@
 — — — — — — — — — —
 
   [rentry for all info ok](https://rentry.co/satorukun)
+  heavy wip btw also idk how to put this in the middle
 
   
 <!--
