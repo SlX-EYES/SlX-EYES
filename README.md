@@ -10,6 +10,8 @@
   [rentry for all info ok](https://rentry.co/satorukun)
   heavy wip btw also idk how to put this in the middle
 
+  pfp by me ohh yeaaa
+
   
 <!--
 **SlX-EYES/SlX-EYES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
