@@ -7,8 +7,8 @@
 <p align="center">
 — — — — — — — — — —
 
-  <p align="center">[rentry for all info ok](https://rentry.co/satorukun)</p>
- <p align="center">heavy wip, pft by me</p>
+[rentry for all info ok](https://rentry.co/satorukun)
+ <p align="center">heavy wip, rentry by me</p>
 
   
 <!--
