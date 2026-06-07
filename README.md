@@ -11,6 +11,7 @@
 [rentry for all info ok](https://rentry.co/satorukun)
  <p align="center">heavy wip, pfp by me</p>
 
+#imnotsocial 😳😳
   
 <!--
 **SlX-EYES/SlX-EYES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
