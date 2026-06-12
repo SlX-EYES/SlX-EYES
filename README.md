@@ -9,6 +9,7 @@
 <div align="center">
 
 [rentry for all info ok](https://rentry.co/satorukun)
+[m/w bf rentry aw](https://rentry.co/2cutemonkeys)
  <p align="center">heavy wip, pfp by me</p>
 
 #imnotsocial 😳😳
