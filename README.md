@@ -9,7 +9,7 @@
 <div align="center">
 
 [info](https://rentry.co/satorukun)
-★ [m/w bf rentry aw](https://rentry.co/2cutemonkeys)
+★ [m/w bf rentry !!!](https://rentry.co/2cutemonkeys)
  <p align="center">heavy wip, pfp by me</p>
 
 #imnotsocial 😳😳
