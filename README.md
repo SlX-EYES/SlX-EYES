@@ -1,6 +1,6 @@
 IM FUCKING POSTED GNG HELPPPP
 i can gift u a skin no need to post guys~
-[here](https://hu.pinterest.com/gokublack01glazer/_created/)
+[here](https://pin.it/IgkPonOCZ) 
 
 
 <p align="center">
