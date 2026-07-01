@@ -1,5 +1,4 @@
-IM FUCKING POSTED GNG HELPPPP
-i can gift u a skin no need to post guys~
+
 <p align="center">
   <img width="500" height="300" src="https://files.catbox.moe/3m5m5b.png">
 </p>
