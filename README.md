@@ -11,7 +11,7 @@
 
 [info](https://rentry.co/satorukun)
 ★ [m/w bf rentry !!!](https://rentry.co/2cutemonkeys)
- <p align="center">heavy wip, pfp by me</p>
+ <p align="center">heavy wip, pfp by me(STOP FUCKING CHANGING ARTS</p>
 
 #imnotsocial 😳😳
   
