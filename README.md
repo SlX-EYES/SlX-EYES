@@ -1,9 +1,10 @@
+$${\color{white}Cursed \space technique \space reversal:}$$
 
 <p align="center">
-  <img width="500" height="300" src="https://file.garden/aiCgV24PQBWh7nsK/Untitled241_20260602080757.png">
+  <img width="610" height="300" src="https://file.garden/aiCgV24PQBWh7nsK/1788335570521.jpg">
 </p>
 
-
+$${\color{#fa3a00}Red.}$$
 
 <p align="center">
 — — — — — — — — — —
@@ -11,9 +12,10 @@
 
 [info](https://rentry.co/satorukun)
 ★ [m/w bf rentry !!!](https://rentry.co/2cutemonkeys)
- <p align="center">heavy wip, pfp by me(STOP FUCKING CHANGING ARTS</p>
+$${\color{#890909}heavy \space wip, \space art \space here \space by \space me }$$
 
-#imnotsocial 😳😳
+ 
+~# $${\color{white}imnotsocial }$$ 😳😳
   
 <!--
 **SlX-EYES/SlX-EYES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
