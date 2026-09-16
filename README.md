@@ -1,4 +1,4 @@
-$${\color{white}Cursed \space technique \space reversal:}$$
+$${\color{#cfcfcf}Cursed \space technique \space reversal:}$$
 
 <p align="center">
   <img width="610" height="300" src="https://file.garden/aiCgV24PQBWh7nsK/1788335570521.jpg">
@@ -15,7 +15,7 @@ $${\color{#fa3a00}Red.}$$
 $${\color{#890909}heavy \space wip, \space art \space here \space by \space me }$$
 
  
-~# $${\color{white}imnotsocial }$$ 😳😳
+~# $${\color{#cfcfcf}imnotsocial }$$ 😳😳
   
 <!--
 **SlX-EYES/SlX-EYES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
